@@ -1,3 +1,3 @@
 # FANSHIONPEDIA PROJECT
 
-Link Paper: https://hackmd.io/@0b7gquJoRtaVRGXmMQiBag/HJpmwhrK1g
+## [**PAPER LINK 📝**](https://hackmd.io/@0b7gquJoRtaVRGXmMQiBag/HJpmwhrK1g)
